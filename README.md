@@ -77,7 +77,7 @@ Garantizar a nuestros clientes que trabajaremos con la misma intensidad y calida
 
   | Correo Corporativo | contexrtw@yahoo.com                                          |
   | ------------------ | ------------------------------------------------------------ |
-  | **Celular **       | 0988756229 - 0992927742                                      |
+  | **Celular**        | 0988756229 - 0992927742                                      |
   | **Instagram**      | [@contexrtw](https://www.instagram.com/contexrtw/)           |
   | **Facebook**       | [Contex-Confecciones textiles](https://www.facebook.com/contexrtw/) |
 

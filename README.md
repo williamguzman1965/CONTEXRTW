@@ -35,7 +35,7 @@ Garantizar a nuestros clientes que trabajaremos con la misma intensidad y calida
 
 <img src="https://raw.githubusercontent.com/williamguzman1965/Boxers/master/BOX%20HOM%201.jpg" style="zoom: 25%;" />
 
-- # [BVD y Top](https://williamguzman1965.github.io/Bividi/)
+- # [BVD y Top](https://williamguzman1965.github.io/BVD-y-Top/)
 
   <img src="https://raw.githubusercontent.com/williamguzman1965/BVD-y-Top/master/bvdd1.jpg" style="zoom: 25%;" />
 
